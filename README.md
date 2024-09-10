@@ -1,2 +1,2 @@
 # algo
-idk i'm 13 years old
+Hi i'm 13 years old beginner
